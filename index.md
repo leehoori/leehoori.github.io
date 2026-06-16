@@ -8,7 +8,7 @@ title: Lee Hyo Ri Archive
 
 ## 1998-05-04 특종 오늘의 토픽
 
-![出道采访截图](/assets/images/19980504.jpg)
+![19980504](/assets/images/19980504.jpg)
 
 
 
